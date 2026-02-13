@@ -1,6 +1,6 @@
 ## Hi, I'm Akshata ​✨​
 
-🧠​ Computer science student at SICSR<br/>
+Rooted in strategy, shaped by imagination, designing for sustainable futures, I am currently pursuing my Master's in Computer Applications(MCA). I have done my specialization Aritificial Intelligence and Machine Learning(AI/ML) and have hands-on-experience working in the Security Field with my focus being in AI Security. I’m driven to shape creative work that harnesses emerging technologies to enable symbiotic co-creation, redefining creativity and ethical design, with a user-centred impact. Get in touch!
 
 
 ## Skills 👩‍💻
